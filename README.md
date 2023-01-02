@@ -28,4 +28,4 @@ Os dados coletados não serão compartilhados com terceiros, exceto por expressa
 
 #Contato
 Para esclarecer quaisquer dúvidas sobre esta Política de Privacidade ou sobre os dados pessoais que tratamos, basta entrar em contato pelo E-mail:
- - 
+ - badback.gamestudio@gmail.com
